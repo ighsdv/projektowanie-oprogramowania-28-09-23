@@ -1,2 +1,3 @@
 laura strycharczuk
+czwartek
 
